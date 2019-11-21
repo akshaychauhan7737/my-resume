@@ -1,2 +1,2 @@
-![Akshay_Resume-1](https://user-images.githubusercontent.com/26142476/57829803-c9d9b580-77cd-11e9-8ddc-7aae6f714d08.png)
-![Akshay_Resume-2](https://user-images.githubusercontent.com/26142476/57829807-cb0ae280-77cd-11e9-95a6-669aa99c658e.png)
+![Akshay_Resume-1](https://user-images.githubusercontent.com/26142476/69351474-66ab6d00-0ca1-11ea-98fe-41b9f4941410.jpg)
+![Akshay_Resume-2](https://user-images.githubusercontent.com/26142476/69351477-66ab6d00-0ca1-11ea-863b-dfa95b2fab9e.jpg)
